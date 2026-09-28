@@ -1,2 +1,2 @@
-# Exerc-cios---Avaliacao-Diagn-stica
+# Exerc-cios---Avaliacao-Diagnstica
 atividades da escola 
